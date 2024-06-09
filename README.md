@@ -1,1 +1,1 @@
-# Ad astra per aspera
+# Ad astra per aspera ✨
